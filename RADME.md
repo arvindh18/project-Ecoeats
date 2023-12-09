@@ -1,3 +1,3 @@
 # EcoEats
 
-online shpping 🛒 
+online shpping 🛒  for veggie's 
